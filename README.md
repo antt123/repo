@@ -1,2 +1,0 @@
-# repo
-manamana doodoodoodoodoodoo
